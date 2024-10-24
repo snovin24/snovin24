@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @snovin24
+- 👋 Hi, I’m Shayan (@snovin24)
 - 👀 I’m interested in installing systems-level changes to improve HIV preventative care!
 - 🌱 I’m currently learning Translational Research at the University of Toronto.
 - 💞️ I’m looking to collaborate on health-focused education projects.
